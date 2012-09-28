@@ -1,4 +1,6 @@
-i-am-currently-away-on-vacation
+I am currently on vacation!
 ===============================
 
-Yo, I am currently away on vacation. Don't expect replies! :-)
+Yo, I am currently on vacation from the Internet. 
+
+Please don't expect replies from me! :-)
